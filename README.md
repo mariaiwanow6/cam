@@ -1,1 +1,1 @@
-# download and install Maria-cam.exe watch me live and chat with me :-) have fun
+# Download and install Maria-Cam.exe watch me live and chat with me :-) have fun
